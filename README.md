@@ -1,2 +1,2 @@
 # Green-transport
-Travel with on land, sea and air in a sustainable way
+Travel on land, sea and air in a sustainable way
